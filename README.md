@@ -7,3 +7,4 @@ https://telegra.ph/Kak-najti-pravilnye-otvety-na-uchebnikmosru-05-10
 
 юзал как макет(весь код был переписан) - https://github.com/aiexz/mash
 
+https://yadi.sk/d/dS2o_pssXh6PiA
